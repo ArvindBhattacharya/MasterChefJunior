@@ -1,0 +1,5 @@
+- cut a hole in the bread that a yolk can fit in.
+- melt butter over the pan.
+- place bread in pan and pour egg into the hole.
+- after two minutes, flip the bread.
+- once ready, sprinkle salt and pepper to finish the meal.

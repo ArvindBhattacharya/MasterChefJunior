@@ -1,0 +1,4 @@
+- 1 egg
+- 1 slice of bread
+- 1 tbs of butter
+- a bit of salt and pepper
